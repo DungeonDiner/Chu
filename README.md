@@ -11,12 +11,11 @@
  <p align="side">
   <img width="50" src=https://i.postimg.cc/t4SF26DW/Untitled659-20251207232059.png> zoul/chu 🍀  🇵🇭🏳️‍⚧️  °       ` 
 
-
 <p align="center">my interest 
 gachiatuka, dandadan, skullgirls, one piece, land of lustrous, sweet tooth, delicious in dungeon, my dress-up darling,scissors seven
 
 
 <p align="middle">
-<img width="30" src=https://i.postimg.cc/MH11Zr7W/Untitled659-20251207233452.png> im always offtab so like w21
+<img width="30" src=https://i.postimg.cc/MH11Zr7W/Untitled659-20251207233452.png> im always offtab so like w21 this thing is wip so uh yeah
 
 
