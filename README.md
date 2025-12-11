@@ -11,8 +11,7 @@
  <p align="side">
   <img width="50" src=https://i.postimg.cc/t4SF26DW/Untitled659-20251207232059.png> zoul/chu 🍀  🇵🇭🏳️‍⚧️  °       ` 
 
-<p align="center">my interest 
-gachiatuka, dandadan, skullgirls, one piece, land of lustrous, sweet tooth, delicious in dungeon, my dress-up darling,scissors seven
+<p align="center">my main interest:gachiatuka, dandadan, one piece, skullgirls and mha
 
 
 <p align="middle">
